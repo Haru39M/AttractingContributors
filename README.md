@@ -4,6 +4,7 @@ What do you often buy at Daily Yamazaki?
 - Boss coffee
 - sweets
 - Vegetable juice
+- onigiri
 - Onigiri
 - youkan
 - salad chicken
